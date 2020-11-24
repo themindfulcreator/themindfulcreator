@@ -8,4 +8,3 @@
 - 📫 How to reach me: twitter @themindfulcreator
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I dont know what to write in here! :)
--->
